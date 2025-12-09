@@ -1,0 +1,1 @@
+im an intermediate developer and this is my work. i work my best to show the easiest and most effective scripts. my service is very easy and cheap. i hope you can support my work in the following messages. i do gamepasses of all kinds. data storing systems. etc. you can see my work on the files
